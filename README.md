@@ -9,4 +9,4 @@
 
 - My linkedin: https://www.linkedin.com/in/bruno-bardini-zanella-1a925216a
 
-thankfull! smile:
+thankfull :smile:
